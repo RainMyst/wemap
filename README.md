@@ -79,3 +79,7 @@ RainMyst
 欢迎在 B 站或 GitHub 留言交流。
 
 ---
+通过网盘分享的文件：wemap.zip
+链接: https://pan.baidu.com/s/1laWlRrKsE-k11tN0mARexg?pwd=weap 提取码: weap
+--来自百度网盘超级会员v4的分享
+使用方法见视频与压缩包中的说明与提醒
